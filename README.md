@@ -279,14 +279,6 @@
 - Discussions on how to process further with this knowledge.
 
 
-
-
-## Join the Python Core 2022 WhatsApp Group here:
-
-https://chat.whatsapp.com/Fay4UDQo9ZcA2XpMK6biSF
-
-
-
 ## Connect with me on these platforms:
 
 GitHub: https://github.com/albinimpulze
