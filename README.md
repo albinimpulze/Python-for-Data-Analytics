@@ -289,10 +289,10 @@ https://chat.whatsapp.com/Fay4UDQo9ZcA2XpMK6biSF
 
 ## Connect with me on these platforms:
 
-GitHub: https://github.com/hemansnation
+GitHub: https://github.com/albinimpulze
 
-Twitter: https://twitter.com/hemansnation
+Twitter: https://twitter.com/albinimpulze
 
-LinkedIn: https://www.linkedin.com/in/hemansnation/
+LinkedIn: https://www.linkedin.com/in/albinxavier1/
 
-Instagram: https://www.instagram.com/masterdexter.ai/
+Instagram: https://www.instagram.com/albinimpulze/
